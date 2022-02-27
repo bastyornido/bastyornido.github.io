@@ -28,7 +28,7 @@ Owned by Robert Sebastian D. Ornido (Basty)
 
 - **(G)I-DLE**
 
-[![image-text](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/%28%EC%97%AC%EC%9E%90%29%EC%95%84%EC%9D%B4%EB%93%A4_%28G%29I-dle_10%2BStar_Summer_03.png/320px-%28%EC%97%AC%EC%9E%90%29%EC%95%84%EC%9D%B4%EB%93%A4_%28G%29I-dle_10%2BStar_Summer_03.png)](https://open.spotify.com/artist/2AfmfGFbe0A0WsTYm0SDTx?si=d5527c3c1fad4019)
+[![image-text](https://lh3.googleusercontent.com/vHtaB4fXUmZA6RdFst1cMFInLvyP1g0nTwEIdspgUZ4lJ0sbznZGf_20u0bEDK0xcUTt95pWxZrY9IFPVQeqj9tNjBd3e5zHO1E=w1200-h630-rj-pp-e365)](https://open.spotify.com/artist/2AfmfGFbe0A0WsTYm0SDTx?si=d5527c3c1fad4019)
 
 - **Kendrick Lamar**
 
