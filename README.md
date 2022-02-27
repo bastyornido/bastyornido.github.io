@@ -20,7 +20,7 @@ Owned by Robert Sebastian D. Ornido (Basty)
 
 - **TWICE**
 
-[![image-text](https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/Twice_210615.png/220px-Twice_210615.png)](https://open.spotify.com/artist/7n2Ycct7Beij7Dj7meI4X0?si=9cdc817add314c0c)
+[![image-text](https://lh3.googleusercontent.com/kbjRANXccMc5WOHstQtwLvS4OOcTut0nvP6s8DMePPnhGxS1dG0lLYWLiIQs3rt9hzmHClwuW3tNIYVb=w2880-h1200-p-l90-rj)](https://open.spotify.com/artist/7n2Ycct7Beij7Dj7meI4X0?si=9cdc817add314c0c)
 
 - **The Weeknd**
 
