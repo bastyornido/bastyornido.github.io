@@ -28,4 +28,8 @@ Owned by Robert Sebastian D. Ornido (Basty)
 
 - **(G)I-DLE**
 
-[![image-text](https://cdn.justjared.com/wp-content/uploads/headlines/2020/04/gidle-trust.jpg)](https://open.spotify.com/artist/2AfmfGFbe0A0WsTYm0SDTx?si=d5527c3c1fad4019)
+[![image-text](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/%28%EC%97%AC%EC%9E%90%29%EC%95%84%EC%9D%B4%EB%93%A4_%28G%29I-dle_10%2BStar_Summer_03.png/320px-%28%EC%97%AC%EC%9E%90%29%EC%95%84%EC%9D%B4%EB%93%A4_%28G%29I-dle_10%2BStar_Summer_03.png)](https://open.spotify.com/artist/2AfmfGFbe0A0WsTYm0SDTx?si=d5527c3c1fad4019)
+
+- **Kendrick Lamar**
+
+[![image-text](https://i.pinimg.com/474x/80/bb/62/80bb6225f50c5c704d9f73189034c82c.jpg)](https://open.spotify.com/artist/2YZyLoL8N0Wb9xBt1NhZWg?si=4c83354c080e408a)
