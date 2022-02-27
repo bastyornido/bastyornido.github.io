@@ -32,4 +32,4 @@ Owned by Robert Sebastian D. Ornido (Basty)
 
 - **Kendrick Lamar**
 
-[![image-text](https://i.pinimg.com/474x/80/bb/62/80bb6225f50c5c704d9f73189034c82c.jpg)](https://open.spotify.com/artist/2YZyLoL8N0Wb9xBt1NhZWg?si=4c83354c080e408a)
+[![image-text](https://yt3.ggpht.com/ytc/AKedOLTk71Ju9YYj5VQWpMPgRcgHnfeeGQ3Guf1M2F8m=s900-c-k-c0x00ffffff-no-rj)](https://open.spotify.com/artist/2YZyLoL8N0Wb9xBt1NhZWg?si=4c83354c080e408a)
