@@ -24,7 +24,7 @@ Owned by Robert Sebastian D. Ornido (Basty)
 
 - **The Weeknd**
 
-[![image-text](https://www.tmrwmagazine.com/wp-content/uploads/2020/12/Screen-Shot-2020-12-17-at-17.55.54-300x300-c-default.jpg)](https://open.spotify.com/artist/1Xyo4u8uXC1ZmMpatF05PJ?si=43980c7994224957)
+[![image-text](https://www.goldderby.com/wp-content/uploads/2020/11/the-weeknd.jpg)](https://open.spotify.com/artist/1Xyo4u8uXC1ZmMpatF05PJ?si=43980c7994224957)
 
 - **(G)I-DLE**
 
