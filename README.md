@@ -15,4 +15,6 @@ Feel free to chill here and listen to my playlists :3
 
 
 Check out some of my favorite artists!
+
+
 [![image-text](https://i.pinimg.com/550x/60/1a/f8/601af86a5840fd0f36cf2e5acf756f70.jpg)](https://open.spotify.com/artist/7n2Ycct7Beij7Dj7meI4X0?si=9cdc817add314c0c)
