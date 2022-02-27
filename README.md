@@ -1,4 +1,4 @@
-## Welcome to Basty's Chill Space
+## Welcome to Basty's Chill Space   ![alt text](https://media.giphy.com/media/JVglf7QjxaZZM2tjfB/giphy.gif)
 Owned by Robert Sebastian D. Ornido (Basty)
 
 ![alt text](https://media.giphy.com/media/J5WxSrLAlcbS2afF8i/giphy.gif)
