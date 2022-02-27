@@ -15,4 +15,4 @@ Feel free to chill here and listen to my playlists :3
 
 
 Check out some of my favorite artists!
-[!(image-text](https://media.pitchfork.com/photos/5e2897b825643f00082b2e88/1:1/w_600/first%20album_glass%20beach.jpg)](https://open.spotify.com/artist/4gHs8pWsgZpndQZKs6QVRH?si=7d2312b15c324829)
+[![image-text](https://media.pitchfork.com/photos/5e2897b825643f00082b2e88/1:1/w_600/first%20album_glass%20beach.jpg)](https://open.spotify.com/artist/4gHs8pWsgZpndQZKs6QVRH?si=7d2312b15c324829)
